@@ -1,1 +1,0 @@
-# Muras.Turdukulov.github.io
